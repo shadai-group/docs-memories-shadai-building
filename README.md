@@ -1,0 +1,1 @@
+# docs-memories-shadai-building
